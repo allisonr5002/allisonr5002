@@ -1,7 +1,7 @@
 Hi there! Glad you could stop by, I'm Allison 💫
 
 # 💫 About Me:
-🧠Computer science student at Florida International University<br/><br>💻AI/ML Fellow at Break Through Tech/Cornell University<br/><br>🧩I like tackling different projects and I'm currently focusing on AI/ML<br/><br>📨Follow my journey on my [Linkedin](https://www.linkedin.com/in/allisonrome5002/)
+🧠Computer science student at Florida International University<br/><br>💻AI/ML Fellow at Break Through Tech/Cornell University<br/><br>🧩I like tackling different projects and I'm currently focusing on AI/ML<br/><br>📨Follow my journey on my [Linkedin](https://www.linkedin.com/in/allisonrome5002/)!
 
 
 ## 🌐 Socials:
